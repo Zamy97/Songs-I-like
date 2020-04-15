@@ -13,3 +13,5 @@ Bosonto esheche---> https://www.youtube.com/watch?v=MOiTD_jwYvE
 [Ferate parini](https://www.youtube.com/watch?v=I6VblvRKZ5o)
 
 [Boro luker beti lo lomba lomba chul](https://www.youtube.com/watch?v=k6aVxcXIaX8)
+
+[Doyal baba kebla kaba](https://www.youtube.com/watch?v=psxKsHfOlNE)
